@@ -1,1 +1,1 @@
-# social-media-influence-on-crpto-space
+# Social Media Influence On Crpto Space
